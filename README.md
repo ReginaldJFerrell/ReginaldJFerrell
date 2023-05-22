@@ -1,6 +1,4 @@
 ### Hi, I'm Reggie 👋🏾
-
-#### Who am I?
 <p>I'm a quantitative data professional based in Washington, DC. I am currently working in the field of education with current work focusing on cost analysis, predictive analytics, geospatial analysis, and reporting & insights. I'm really passionate about social determinants of health, capacity building, and storytelling. </p>
 
 ##### Tools that I use:
@@ -13,7 +11,7 @@
 - **Adobe Creative Suite**, Illustrator and Photoshop 
 
 #### How to reach me?
-You can following this link, **[here]([https://www.linkedin.com/in/reginaldjferrell/])**, to reach out to me via LinkedIn. 
+You can reach out to me via my **[LinkedIn]([https://www.linkedin.com/in/reginaldjferrell/])**. 
 
 #### Anything else?
 I also have a budding interest in the space of photo and visual journalism in regards to people, place, and the built environment. Feel free to check out some of my work **here**.  
