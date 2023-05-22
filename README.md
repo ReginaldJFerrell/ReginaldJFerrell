@@ -13,7 +13,7 @@
 - **Adobe Creative Suite**, Illustrator and Photoshop 
 
 #### How to reach me?
-You can following this link,**[here]([https://www.linkedin.com/in/reginaldjferrell/])**, to reach out to me via LinkedIn. 
+You can following this link, **[here]([https://www.linkedin.com/in/reginaldjferrell/])**, to reach out to me via LinkedIn. 
 
 #### Anything else?
 I also have a budding interest in the space of photo and visual journalism in regards to people, place, and the built environment. Feel free to check out some of my work **here**.  
