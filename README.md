@@ -13,7 +13,7 @@
 Please check out some of my past work/projects and weekly #TidyTuesday visualizations.
 
 #### How to reach me?
-If you have any questions regarding my work or simply just want to connect you can reach out to me via my **[LinkedIn](https://www.linkedin.com/in/reginaldjferrell/)**. I look forward to hearing from you!
+If you have any questions about my work or simply just want to connect you can reach out to me via my **[LinkedIn](https://www.linkedin.com/in/reginaldjferrell/)**. I look forward to hearing from you!
 
 #### Anything else?
 I also have a budding interest in the space of photo and visual journalism in regards to people, place, and the built environment. Feel free to check out some of my work **here**.  
